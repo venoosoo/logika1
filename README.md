@@ -1,0 +1,2 @@
+# logika1
+dddddddd
